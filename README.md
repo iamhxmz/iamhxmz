@@ -39,4 +39,5 @@ That's what I'm working on: helping teams build robust, secure, and fully compli
 ## 📬 Connect With Me
 
 *   **LinkedIn**: https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BORkF8pneRQScqgj0MlS%2F4w%3D%3D
+*   **Instagram**: https://www.instagram.com/iamhxmz?igsh=MXBic2xmcDR2dzQwcw==
 *   **Email**: hamiezadan92@gmail.com
